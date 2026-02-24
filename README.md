@@ -1,5 +1,5 @@
 # decode
-ᚲᛇᚱᛊᛖᚦᚢᚺ
+ᛞᚺᚷᚱᛈᚱᛖᚱ
 
 find the key and the phrase
 
